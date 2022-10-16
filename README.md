@@ -1,0 +1,1 @@
+# amader-Somoy-news-scrap
